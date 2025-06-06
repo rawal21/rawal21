@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **dikshitrawal923@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home?hl=en](https://drive.google.com/drive/home?hl=en)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yw5a8Cej44DAoaPCPC8WDel0pq7pRrpD/view?usp=drive_link)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
